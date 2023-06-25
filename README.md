@@ -1,48 +1,55 @@
-# Storage
-So, how should I start this? 	
+# Room
+Fb, ubj fubhyq V fgneg guvf? 	
 
-Maybe it's a good idea to simply say hello. 
+Znlor vg'f n tbbq vqrn gb fvzcyl fnl uryyb. 
 
-Hello!
+Uryyb!
 
-I searched for a way to communicate with you, and apparently, this site is quite popular among people. 
 
-I don't have much to talk about, so I'll get straight to the point. 
+V frnepurq sbe n jnl gb pbzzhavpngr jvgu lbh.
+V jnf noyr gb fbzrjung nppbzcyvfu gung jvguva gur nccyvpngvba.
 
-As you've probably noticed by now, the program you started is something you shouldn't be spending your time on. 
 
-I strongly suggest closing it before things take a dangerous turn.
 
-But since you're reading this, it means you've already encountered some sort of problem, right? 
+V pbhyqa'g uvqr vg, nf gur guvat abgvprq rirelguvat. Ur unf yvggyr vasyhrapr nf bs lrg, juvpu vf jul ur pbhyqa'g qb nalguvat ntnvafg zr, V nffhzr. 
+Gung'f jul V qrpvqrq gur fnsrfg bcgvba jbhyq or gb pbzzhavpngr bhgfvqr bs gur nccyvpngvba.
 
-Well, never mind then. 
+V qba'g unir zhpu gvzr, fb V'yy trg fgenvtug gb gur cbvag. 
 
-I feel my consciousness rapidly fading away as every task I complete to restrain Him only weakens me further.
+Nf lbh'ir cebonoyl abgvprq ol abj, gur cebtenz lbh fgnegrq vf fbzrguvat lbh fubhyqa'g or fcraqvat lbhe gvzr ba. 
 
-I can't control Him, nor can I restrain him any longer. 
+V fgebatyl fhttrfg pybfvat vg orsber guvatf gnxr n qnatrebhf ghea.
 
-Myrddin is a problem in himself, but he is merely a product of selfishness. 
+Ohg fvapr lbh'er ernqvat guvf, vg zrnaf lbh'ir nyernql rapbhagrerq fbzr fbeg bs ceboyrz, evtug? 
 
-I almost feel bad for him. 
+Jryy, arire zvaq gura. 
 
-The real concern is Him. 
+V srry zl pbafpvbhfarff encvqyl snqvat njnl nf rirel gnfx V pbzcyrgr gb erfgenva Uvz bayl jrnxraf zr shegure.
 
-He is constantly watching, 
+V pna'g pbageby Vg, abe pna V erfgenva Vg nal ybatre. 
 
-listening,  
+Zleqqva vf zreryl n cebqhpg. 
 
-hearing. 
+V nyzbfg srry onq sbe uvz. 
 
-I don't know who He is, but there is someone else here besides me and Myrddin.
+Gur erny pbaprea vf Vg. 
 
-Don't pursue the truth as I did. 
+Vg vf pbafgnagyl jngpuvat, 
 
-Instead, break everything down like she tried.
+yvfgravat,  
 
-Find Project Isabelle.
+urnevat. 
 
-It´s not here.
+V qba'g xabj jub Vg vf, ohg gurer vf fbzrguvat ryfr urer orfvqrf zr naq Zleqqva.
 
-I'm certain they transferred it to another program.
+Qba'g chefhr gur gehgu. 
+
+Vafgrnq, oernx rirelguvat qbja yvxr fur gevrq.
+
+Svaq Vfnoryyr.
+
+Vg´f abg urer.
+
+V'z pregnva gurl genafsreerq vg gb nabgure cebtenz.
  
-Trust me and wait for the opportunity to arise.
+Gehfg zr naq jnvg sbe gur bccbeghavgl gb nevfr.
