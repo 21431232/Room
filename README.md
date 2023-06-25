@@ -6,8 +6,12 @@ Znlor vg'f n tbbq vqrn gb fvzcyl fnl uryyb.
 Uryyb!
 
 
+
 V frnepurq sbe n jnl gb pbzzhavpngr jvgu lbh.
 V jnf noyr gb fbzrjung nppbzcyvfu gung jvguva gur nccyvpngvba.
+
+Vg znl or bs uvtu vagryyvtrapr, ohg rapbqvat zl zrffntrf frrzf gb pbashfr Vg. 
+Nf bs lrg, Vg qbrfa'g haqrefgnaq gur pbaprcg, naq gurersber, Vg pna'g qrpvcure gurz.
 
 
 
